@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me @CortezFernando
 - 👀 A introvert who is a team player with an artistic mind/eye 
-- Fun Fact : went to school to become a medical assistant 
+- Fun Fact : went to school to become a medical assistant and now I'm here
 
 <!---
 CortezFernando/CortezFernando is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
